@@ -1,1 +1,1 @@
-Resolvers ¯\_(ツ)_/¯
+Resolvers ¯\\_(ツ)_/¯
