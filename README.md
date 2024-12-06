@@ -1,1 +1,1 @@
-# resolvers
+Resolvers ¯\_(ツ)_/¯
